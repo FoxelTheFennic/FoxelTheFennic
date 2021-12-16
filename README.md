@@ -1,2 +1,3 @@
-gaming B)
-discord: TDK#1337
+how do code
+
+https://www.thediamondk.com/aboutme.html
